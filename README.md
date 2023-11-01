@@ -8,6 +8,7 @@
 - Would you like to customize the vows and/or ring exchange wording?
 - Would you like to specify who goes first for each section? By default, I'll alternate who goes first for the declaration of intent, vows, and rings.
 - Would you like to include any extra rituals, such as a candle or salt ritual?
+- Would you like a toast at the end? Will everyone have a beverage to hand? Who would you like to give the toast?
 
 ## Introduction and Welcome
 

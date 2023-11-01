@@ -17,10 +17,11 @@
 
 *(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. I have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. Besides watching The Wedding Crashers to prepare for today, I also resonated with this phrase from Kermit the Frog's TedX Talk. Loving relationships are built on a kind of ridiculous optimism, and it's the kind of dream that gets better the more people you share it with.
 
-*(To guests:)* We will now have the reading.
+*(To guests:)* We will now have the reading, from The Wedding Singer, performed by Paul Carr.
 
 ## Reading
 
+```
 I want to make you smile whenever you're sad,
 carry you around when your arthritis is bad.
 All I want to do, is grow old with you.
@@ -36,6 +37,7 @@ So let me do the dishes in our kitchen sink,
 put you to bed if you've had too much to drink.
 I could be the man, who grows old with you.
 I want to be the man, who grows old with you.
+```
 
 ## Declaration of Intent
 
@@ -49,7 +51,20 @@ I want to be the man, who grows old with you.
 
 *(Jacqui:)* I do.
 
-### If separate, the Exchange of Vows would go here
+## Exchanging of Vows (optional)
+
+Dan and Jacqui, if you are willing to continue your beautiful life together, building your relationship ever stronger, you may promise your love and lives to one another in an exchange of vows now.
+
+[Sample vows below.]
+
+**Option 1**
+
+I, _____, choose you, _____, in the presence of our family and friends to be my husband/wife/partner/spouse from today onward, to be a comfort and safe haven in your life, to love you and hold you, to listen deeply when you speak, to never take you for granted, and to always give thanks for your presence in my life.
+
+**Option 2**
+
+From this day forward, I, _____, give myself to you, _____, as your husband/wife/partner/spouse, knowing that we have a beautiful life ahead of us. I commit myself to you in a time of winter, knowing the love I feel for you as better than Christmas.
+
 
 ## Exchange of Rings
 
@@ -61,7 +76,15 @@ I want to be the man, who grows old with you.
 
 *(To Dan:)* Dan, please repeat after me. *Jacqui, I give you this ring as a symbol of my undying love for you. With it, I promise to love you, cherish you, and stand by you in good times and bad, sickness and health, for as long as I live.*
 
-### If desired, the Candle or Salt Ritual would go here
+## Salt Ritual (optional)
+
+*(To guests):* Salt has been used as a preservative and purifier to prevent decay and corruption since ancient times. It is the symbol of God’s character and dependability because it is eternal, enduring, never changing, and abiding eternally. 
+
+*(To couple):* Jacqui and Dan, a vial of salt stands before each of you, symbolizing your individuality as well as your aspirations, goals, desires, and intentions for this marriage and the family you have become. You create a Covenant by blending your salt together, symbolizing your joining in marriage and as one family.
+
+*(To couple):* Dan and Jacqui, at this time, I ask each of you to lift your salt and blend them together.
+
+*(To couple):* This salt exchange symbolizes the intertwining of your lives. You will be as difficult to come between as it would be to separate these grains of salt. This visual representation of your intentions for each other is as beautiful as it is eternal. No matter what life brings, this beautiful relationship is a shared and integral part of your journey through it.
 
 ## Pronouncement
 

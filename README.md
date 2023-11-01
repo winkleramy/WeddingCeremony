@@ -8,12 +8,13 @@
 - Would you like to customize the vows and/or ring exchange wording?
 - Would you like to specify who goes first for each section? By default, I'll alternate who goes first for the declaration of intent, vows, and rings.
 - Would you like to include any extra rituals, such as a candle or salt ritual?
+- Would you like a toast at the end? Will everyone have a beverage to hand? Who would you like to give the toast?
 
 ## Introduction and Welcome
 
 *(Optional wedding crashers reference:)* Welcome! If you're a Wedding Crashers fan and wondered what you like better, Christmas or Wedding Season, well, today is Dan and Jacqui's gift to you.
 
-*(To guests:)* On behalf of Jacqui and Dan, thank you for being here today and for supporting them over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. And as witnesses, we show our intent to support Dan and Jacqui for the years to come.
+*(To guests:)* On behalf of Jacqui and Dan, thank you for being here today and for supporting them over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. They have chosen to share this moment with all of us, so we can witness, acknowledge, and celebrate the familiar and awesome triumph of love, patience, forgiveness, and friendship above all else. As witnesses, we show our intent to support Dan and Jacqui for the years to come. 
 
 *(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. I have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. Besides watching The Wedding Crashers to prepare for today, I also resonated with this phrase from Kermit the Frog's TedX Talk. Loving relationships are built on a kind of ridiculous optimism, and it's the kind of dream that gets better the more people you share it with.
 
@@ -75,4 +76,4 @@ I want to be the man, who grows old with you.
 
 *(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the strength to love and care for yourselves with radical empathy and ridiculous optimism and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. No one person needs to be everything to us in all phases of our lives. May you be surrounded by the support and love shown here today for all the years to come.
 
-*(To couple:)* At that's it! By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!
+*(To couple:)* And that's it! By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!

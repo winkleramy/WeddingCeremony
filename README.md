@@ -41,7 +41,7 @@ I want to be the man, who grows old with you.
 
 ## Declaration of Intent
 
-*(To couple:)* Let's not leave this a cliff hanger! Please join hands. 
+*(To couple:)* Please join hands. 
 
 *(To Dan:)* Dan, do you take Jacqui to be your lawfully wedding wife to share your life with? Will you love her, laugh with her, comfort her, honor and defend her, and be true to her above all else?
 
@@ -50,21 +50,6 @@ I want to be the man, who grows old with you.
 *(To Jacqui:)* Jacqui, do you take Dan to be your lawfully wedded husband to share your life with? Will you love him, laugh with him, comfort him, honor and defend him, and be true to him above all else?
 
 *(Jacqui:)* I do.
-
-## Exchanging of Vows (optional)
-
-Dan and Jacqui, if you are willing to continue your beautiful life together, building your relationship ever stronger, you may promise your love and lives to one another in an exchange of vows now.
-
-[Sample vows below.]
-
-**Option 1**
-
-I, _____, choose you, _____, in the presence of our family and friends to be my husband/wife/partner/spouse from today onward, to be a comfort and safe haven in your life, to love you and hold you, to listen deeply when you speak, to never take you for granted, and to always give thanks for your presence in my life.
-
-**Option 2**
-
-From this day forward, I, _____, give myself to you, _____, as your husband/wife/partner/spouse, knowing that we have a beautiful life ahead of us. I commit myself to you in a time of winter, knowing the love I feel for you as better than Christmas.
-
 
 ## Exchange of Rings
 
@@ -90,4 +75,4 @@ From this day forward, I, _____, give myself to you, _____, as your husband/wife
 
 *(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the strength to love and care for yourselves with radical empathy and ridiculous optimism and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. No one person needs to be everything to us in all phases of our lives. May you be surrounded by the support and love shown here today for all the years to come.
 
-*(To couple:)* At that's it! By the power vested in me by the Universal Life Church Ministeries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!
+*(To couple:)* At that's it! By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!

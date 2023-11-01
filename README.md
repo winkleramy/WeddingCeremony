@@ -13,7 +13,7 @@
 
 *(Optional wedding crashers reference:)* Welcome! If you're a Wedding Crashers fan and wondered what you like better, Christmas or Wedding Season, well, today is Dan and Jacqui's gift to you.
 
-*(To guests:)* On behalf of Jacqui and Dan, thank you for being here today and for supporting them over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. And as witnesses, we show our intent to support Dan and Jacqui for the years to come.
+*(To guests:)* On behalf of Jacqui and Dan, thank you for being here today and for supporting them over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. They have chosen to share this moment with all of us, so we can witness, acknowledge, and celebrate the familiar and awesome triumph of love, patience, forgiveness, and friendship above all else. As witnesses, we show our intent to support Dan and Jacqui for the years to come. 
 
 *(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. I have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. Besides watching The Wedding Crashers to prepare for today, I also resonated with this phrase from Kermit the Frog's TedX Talk. Loving relationships are built on a kind of ridiculous optimism, and it's the kind of dream that gets better the more people you share it with.
 

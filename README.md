@@ -13,7 +13,7 @@
 #### Other Notes
 - Wedding party will walk down the aisle to the song, Concerning Hobbits, from LOTR
 - Ava will walk down the aisle with Jacqui's brother Joe to the song, Here comes the Sun
-- Jacqui will walk down the aisle to the instrumental song from The Greatest Showmen, A million dreams
+- Jacqui will walk down the aisle to the instrumental song from The Greatest Showman, A million dreams (We can live in a world that we design!)
 - The couple will exit to the song, Your love lifts me higher by Jackie Wilson
 - Rings - Jacqui will have them in the morning, arriving at the parents' house at 7am. The boys will arrive later but stay in the basement. The photographer will come by to capture the first view of bride and groom. Some photos in advance and then the traditional family photos will be after the ceremony 
 

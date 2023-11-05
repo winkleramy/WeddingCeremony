@@ -18,7 +18,7 @@
 
 *(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. I have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. Besides watching The Wedding Crashers to prepare for today, I also resonated with this phrase from Kermit the Frog's TedX Talk. Loving relationships are built on a kind of ridiculous optimism, and it's the kind of dream that gets better the more people you share it with.
 
-*(To guests:)* We will now have the reading, from The Wedding Singer, performed by Paul Carr.
+*(To guests:)* We will now have the reading from Adam Sandler in The Wedding Singer.
 
 ## Reading
 
@@ -36,8 +36,8 @@ Need you, feed you, even let you hold the remote control.
 
 So let me do the dishes in our kitchen sink,
 put you to bed if you've had too much to drink.
-I could be the man, who grows old with you.
-I want to be the man, who grows old with you.
+I could be the one, who grows old with you.
+I want to be grow old with you.
 ```
 
 ## Declaration of Intent

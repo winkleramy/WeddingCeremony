@@ -61,4 +61,4 @@ Thank you for being here today and for supporting Jacqui and Dan over the years.
 
 *(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the Muppet-like optimism to love and care for each other and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. May you be surrounded by the support and love shown here today for all the years to come, and may you be a light for each other in dark places, when all other lights go out!
 
-*(To couple:)* And that's it! By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!
+*(To couple:)* By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!

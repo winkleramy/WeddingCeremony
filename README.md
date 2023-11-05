@@ -6,7 +6,7 @@
 - Do you have any reading, poem, or song preference for the "reading" section of the ceremony? Who would you like to perform the reading? - we're good!
 - Would you like to combine the vows and ring exchange or keep them separate? - combined
 - Would you like to customize the vows and/or ring exchange wording? - no
-- Would you like to specify who goes first for each section? By default, I'll alternate who goes first for the declaration of intent, vows, and rings. - alternativing is fine
+- Would you like to specify who goes first for each section? By default, I'll alternate who goes first for the declaration of intent, vows, and rings. - alternating is fine
 - Would you like to include any extra rituals, such as a candle or salt ritual? - salt ritual with tequila to hand
 - Would you like a toast at the end? Will everyone have a beverage to hand? Who would you like to give the toast? - no, key is to get the first kiss photo! Officiant should stand aside for this.
 
@@ -23,7 +23,7 @@
 
 Thank you for being here today and for supporting Jacqui and Dan over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. They have chosen to share this moment with all of us, so we can witness and celebrate the familiar triumph of love, patience, forgiveness, and friendship above all else. As witnesses, we show our intent to support Dan and Jacqui for the years to come. 
 
-*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. To quote Kermit the Frog's TED Talk, loving relationships are built on a kind of ridiculous optimism, and it's the kind of dream that gets better the more people you share it with.
+*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. To quote Kermit the Frog's TED Talk, creating a lasting and loving relationship sometimes takes ridiculous optimism. It sometimes feels like a dream, and it's the kind of dream that gets better the more people you share it with.
 
 ## Declaration of Intent
 

@@ -12,6 +12,9 @@ Option 2
 
 From this day forward, I, _____, give myself to you, _____, as your husband/wife/partner/spouse, knowing that we have a beautiful life ahead of us. I commit myself to you in a time of winter, knowing the love I feel for you as better than Christmas.
 
-Option 3
+Other options involving LOTR quotes
 
-Skip this and combine with ring exchange below.
+- May you be a light for each other in dark places when all other lights go out!
+- I wish the ring had never come to me, I wish none of this had happened
+- I would rather share one lifetime with you, than face all the ages of this world alone
+

@@ -18,18 +18,23 @@ They find that they are one tree and not two.
 
 Option 2: Adam Sandler in The Wedding Singer
 
-I want to make you smile whenever you’re sad.
-Carry you around when your arthritis is bad.
-All I want to do is grow old with you.
-I’ll get your medicine when your tummy aches.
-Build you a fire if the furnace breaks.
+```
+I want to make you smile whenever you're sad,
+carry you around when your arthritis is bad.
+All I want to do, is grow old with you.
+
+I'll get your medicine when your tummy aches,
+build you a fire if the furnace breaks.
 Oh it could be so nice, growing old with you.
-I’ll miss you, kiss you, give you my coat when you are cold.
+
+I'll miss you, kiss you, give you my coat when you are cold.
 Need you, feed you, even let you hold the remote control.
-So let me do the dishes in our kitchen sink.
-Put you to bed if you’ve had too much to drink.
-I could be the man who grows old with you.
-I want to grow old with you.
+
+So let me do the dishes in our kitchen sink,
+put you to bed if you've had too much to drink.
+I could be the one, who grows old with you.
+I want to be grow old with you.
+```
 
 Option 3: Letter from Johnny Cash to June Carter (with some minor edits…)
 

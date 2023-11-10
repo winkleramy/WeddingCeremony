@@ -19,11 +19,9 @@
 
 ## Introduction and Welcome
 
-*(To guests:)* Welcome! On behalf of the wedding party, we would like to say we like half of you half as well as we would like, and like less than half of you half as well as you deserve. 
+*(To guests:)* Welcome! Thank you for being here today and for supporting Jacqui and Dan over the years. As the old Irish saying goes, we like half of you half as well as we would like and like less than half of you half as well as you deserve. In other words, we love you all and are honored to be here with you today, as we witness the familiar triumph of love, patience, empathy, and friendship above all else. Dan and Jacqui have built a lasting and proven friendship, the kind of relationship we recognize and celebrate today as a marriage. As witnesses, we show our intent to support them for the years to come. 
 
-Thank you for being here today and for supporting Jacqui and Dan over the years. They have built a lasting and proven friendship, the kind of relationship we recognize today as a marriage. They have chosen to share this moment with all of us, so we can witness and celebrate the familiar triumph of love, patience, forgiveness, and friendship above all else. As witnesses, we show our intent to support Dan and Jacqui for the years to come. 
-
-*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. To quote Kermit the Frog's TED Talk, creating a lasting and loving relationship sometimes takes ridiculous optimism. It sometimes feels like a dream, and it's the kind of dream that gets better the more people you share it with.
+*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. To quote Kermit the Frog's TED Talk, creating a lasting and loving relationship sometimes takes ridiculous optimism. It sometimes feels like a dream, and it's the kind of dream that gets better the more people you share it with.
 
 ## Declaration of Intent
 

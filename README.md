@@ -21,7 +21,7 @@
 
 *(To guests:)* Welcome! Thank you for being here today and for supporting Jacqui and Dan over the years. As the old Irish saying goes, we like half of you half as well as we would like and like less than half of you half as well as you deserve. Which is to say, we love you all and are honored to be here with you today, to celebrate a loving and lasting relationship, which we now recognize as marriage. As Kermit says, this is the kind of dream that gets better the more people you share it with. 
 
-*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy and the generous sense of humor that has gone into it and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you never stop being each other's ridiculously optimistic person.
+*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy and the generous sense of humor that has gone into it and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you never stop being each other's person.
 
 ## Declaration of Intent
 
@@ -51,7 +51,7 @@
 
 *(To couple):* Jacqui and Dan, a vial of salt stands before each of you, symbolizing your individuality as well as your dreams for this marriage and the family you have become. Blending your salt together is like sharing that dream, symbolizing your joining in marriage and as one family.
 
-*(To couple):* Dan and Jacqui, at this time, I ask each of you to lift your salt and blend them together.
+*(To couple):* Dan and Jacqui, at this time, I ask each of you to lift your vials of salt and blend them together.
 
 *(To couple):* This salt exchange symbolizes the intertwining of your lives. Separating these grains of salt would be very hard, but coming between you would be even harder. No matter what life brings, this shared dream is an integral part of your journey through it.
 

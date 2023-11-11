@@ -7,7 +7,7 @@
 - Would you like to combine the vows and ring exchange or keep them separate? - combined
 - Would you like to customize the vows and/or ring exchange wording? - no
 - Would you like to specify who goes first for each section? By default, I'll alternate who goes first for the declaration of intent, vows, and rings. - alternating is fine
-- Would you like to include any extra rituals, such as a candle or salt ritual? - salt ritual with tequila to hand
+- Would you like to include any extra rituals, such as a candle or salt ritual? - salt ritual with tequila to hand - *Salt Life!*
 - Would you like a toast at the end? Will everyone have a beverage to hand? Who would you like to give the toast? - no, key is to get the first kiss photo! Officiant should stand aside for this.
 
 #### Other Notes

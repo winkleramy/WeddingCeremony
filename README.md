@@ -19,9 +19,9 @@
 
 ## Introduction and Welcome
 
-*(To guests:)* Welcome! Thank you for being here today and for supporting Jacqui and Dan over the years. As the old Irish saying goes, we like half of you half as well as we would like and like less than half of you half as well as you deserve. In other words, we love you all and are honored to be here with you today, as we witness the familiar triumph of love, patience, empathy, and friendship above all else. Dan and Jacqui have built a lasting and proven friendship, the kind of relationship we recognize and celebrate today as a marriage. As witnesses, we show our intent to support them for the years to come. 
+*(To guests:)* Welcome! Thank you for being here today and for supporting Jacqui and Dan over the years. As the old Irish saying goes, we like half of you half as well as we would like and like less than half of you half as well as you deserve. Which is to say, we love you all and are honored to be here with you today, to celebrate a loving and lasting relationship, which we now recognize as marriage. As Kermit says, this is the kind of dream that gets better the more people you share it with. 
 
-*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy, creativity, and the generous sense of humor that has gone into it and made it stronger. To quote Kermit the Frog's TED Talk, creating a lasting and loving relationship sometimes takes ridiculous optimism. It sometimes feels like a dream, and it's the kind of dream that gets better the more people you share it with.
+*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy and the generous sense of humor that has gone into it and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you never stop being each other's ridiculously optimistic person.
 
 ## Declaration of Intent
 

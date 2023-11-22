@@ -23,6 +23,30 @@
 
 *(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy and the generous sense of humor that has gone into it and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you always be each other's person.
 
+## First Reading
+
+Marry your best friend. 
+Marry someone who you wouldn’t mind waking up to every day for the rest of your life. 
+The one who makes you feel glad to be alive. 
+Marry someone who drives you crazy, who frustrates you, but the one who calms you. 
+Marry the one who you don’t mind fighting with because they will be fair about it. 
+Don’t marry someone who gives their ego more importance than they give you. 
+Marry someone who makes you the best version of yourself. 
+The one who believes in you, even when you don’t. 
+The one who stands by you through thick and thin. Marry someone you can’t imagine your life without.
+
+## Second Reading
+
+They say that sometimes love starts with a spark, and that might be true. 
+But if I were to wish you a love, I wouldn’t wish fire for you. 
+You see, fire is powerful. It burns bright and then it’s gone. 
+It’s beautiful and warm, but it doesn’t last long. 
+So instead of wishing you a love that burns, I wish you love like a river that twists and turns. 
+It changes and flows. It is powerful and free. But it consistently finds its way back to the sea. 
+And so, like the water, I hope your love is ever growing, ever changing. 
+I hope your love is powerful and free. 
+And may you always find each other, like the river finds the sea.
+
 ## Declaration of Intent
 
 *(To couple:)* Please join hands. 

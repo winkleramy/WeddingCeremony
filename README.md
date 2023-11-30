@@ -19,9 +19,9 @@
 
 ## Introduction and Welcome
 
-*(To guests:)* Welcome! Thank you for being here today and for supporting Jacqui and Dan over the years. As the old Irish saying goes, we like half of you half as well as we would like and like less than half of you half as well as you deserve. Which is to say, we love you all and are honored to be here with you today, to celebrate a loving and lasting relationship, which we now recognize as marriage. As Kermit says, this is the kind of dream that gets better the more people you share it with. 
+*(To guests:)* Welcome! On behalf of the couple, thank you for being here today and for supporting Jacqui and Dan over the years. Like a wizard, a wedding is never late, or early, it arrives precisely when it means to. 
 
-*(To couple:)* Jacqui and Dan, thank you for inviting us to celebrate the love that has grown between you, deeper and more meaningful as the years have gone by. The kind of partnership you have is built on more than love. We have seen the ever-expanding empathy and the generous sense of humor that has gone into it and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you always be each other's person.
+*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate with the love that has grown between you, deeper and more meaningful as the years have gone by, building this relationship that we recognize today as a marriage. The kind of partnership you have is built on more than love. We see between you the ever-expanding empathy and the generous sense of humor that has gone into your relationship and made it stronger. As Kermit also says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you always be each other's person.
 
 ## First Reading
 
@@ -81,6 +81,10 @@ And may you always find each other, like the river finds the sea.
 
 ## Pronouncement
 
-*(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the Muppet-like optimism to love and care for each other and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. May you be surrounded by the support and love shown here today for all the years to come, and may you be a light for each other in dark places, when all other lights go out!
+*(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the Muppet-style optimism to love and care for each other and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. May you be surrounded by the support and love shown here today for all the years to come, and may you always find each other, as that light for each other in dark places, when all other lights go out!
 
-*(To couple:)* By the power vested in me by the Universal Life Church Ministries and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!
+*(To couple:)* By the power vested in me by the Universal Life Church and the American Marriage Ministries, I now pronounce you husband and wife. You may kiss!
+
+## Presentation
+
+I present to you, Jacqui and Dan Winkler!

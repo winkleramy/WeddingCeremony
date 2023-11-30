@@ -69,16 +69,6 @@ And may you always find each other, like the river finds the sea.
 
 *(To Dan:)* Dan, please repeat after me. *I give you this ring as a symbol of my undying love for you. With it, I promise to love you, cherish you, and stand by you in good times and bad, sickness and health, for as long as I live.*
 
-## Salt Ritual (optional)
-
-*(To guests):* Salt has been used as a preservative and purifier to prevent decay and corruption since ancient times. It is the symbol of God’s character and dependability because it is enduring, never changing, and abiding eternally. 
-
-*(To couple):* Jacqui and Dan, a vial of salt stands before each of you, symbolizing your individuality as well as your dreams for this marriage and the family you have become. Blending your salt together is like sharing that dream, symbolizing your joining in marriage and as one family.
-
-*(To couple):* Dan and Jacqui, at this time, I ask each of you to lift your vials of salt and blend them together.
-
-*(To couple):* This salt exchange symbolizes the intertwining of your lives. Separating these grains of salt would be very hard, but coming between you would be even harder. No matter what life brings, this shared dream is an integral part of your journey through it.
-
 ## Pronouncement
 
 *(To couple:)* At this time, I would like to share a wish for you both. My wish is you always find the Muppet-style optimism to love and care for each other and you continue to cultivate the support of your friends and family, which is as much a gift to us as we hope it is for you. May you be surrounded by the support and love shown here today for all the years to come, and may you always find each other, as that light for each other in dark places, when all other lights go out!

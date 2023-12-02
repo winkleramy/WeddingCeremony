@@ -19,9 +19,9 @@
 
 ## Introduction and Welcome
 
-*(To guests:)* Welcome! On behalf of the couple, thank you for being here today and for supporting Jacqui and Dan over the years. Like a wizard, a wedding is never late, or early, it arrives precisely when it means to. 
+*(To guests:)* Welcome! On behalf of the couple, thank you for being here today and for supporting Jacqui and Dan over the years. Like a wizard, a wedding is never late, or early, it arrives precisely when it means to. And that's as true of these two as anybody.
 
-*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate with the love that has grown between you, deeper and more meaningful as the years have gone by, building this relationship that we recognize today as a marriage. The kind of partnership you have is built on more than love. We see between you the ever-expanding empathy and the generous sense of humor that has gone into your relationship and made it stronger. As Kermit The Frog says, maybe you don't need the whole world to love you. Maybe you just need one person. One ridiculously optimistic person. May you always be each other's person.
+*(To couple:)* Dan and Jacqui, thank you for inviting us to celebrate with the love that has grown between you, deeper and more meaningful as the years have gone by, building this relationship that we recognize today as a marriage. The kind of partnership you have is built on more than love. We see between you the ever-expanding empathy and the generous sense of humor that has gone into your relationship and made it stronger. As Kermit The Frog says, maybe you don't need the whole world to love you. Maybe you just need one person. Someone with the ridiculous optimism to stand by you no matter what. May you always be that person for each other.
 
 ## First Reading
 
@@ -77,4 +77,4 @@ And may you always find each other, like the river finds the sea.
 
 ## Presentation
 
-I present to you, Jacqui and Dan Winkler!
+I present to you, Mr. and Mrs. Winkler!
